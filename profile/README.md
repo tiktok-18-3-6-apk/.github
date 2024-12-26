@@ -1,6 +1,6 @@
 # TikTok 18 Mod APK 3.6 Premium Unlocked untuk Android 2025 🎥
 
-## Download Now: https://heyapks.com/
+## Download: 👉👉 [TikTok 18 APK](https://heyapks.com/tiktok-18.html) 👈👈
 
 ![Tik-Tok-18-Plus-APK-1 1 8-23-MB png_upscayl_2x_realesrgan-x4plus](https://github.com/user-attachments/assets/2c5e3225-ddfc-4aee-bc6d-54a59c4a78c0)
 
